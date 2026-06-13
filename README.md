@@ -8,13 +8,13 @@ An HDG microfic in 2nd person about a programmer floret (you) and her caring own
 
 ## Notes:
 
-Female Affini, gender neutral reader referred to as "you" (2nd person).
+Female Affini, gender-neutral reader referred to as "you" (2nd person).
 
 ## Fic
 
 It had been about 6 weeks since the Affini Compact suddenly showed up to your planet and rewrote society, and about 3 weeks since you'd been... "domesticated". Something that terrified you at first, but you've slowly learned that maybe, just maybe, the Compact has your best interests at heart.
 
-For many years before the Compact showed up, you were a programmer by trade. You had gotten very good at this, and could quite effectively weave code together for whatever massive Terran corpo paid you the most. You'd always enjoyed this, but it's been differently recently.
+For many years before the Compact showed up, you were a programmer by trade. You had gotten very good at this, and could quite effectively weave code together for whatever massive Terran corpo paid you the most. You'd always enjoyed this, but it's been different recently.
 
 You stand before Coffea Pucciniales, 6th bloom, she/her, your... owner. Being *owned* was still a new concept. The contract you signed ~~against your will~~ did reassure you a bit that you weren't going to be a tortured slave, but you barely knew this... plant person? and now you're surrendering all your "political rights in the Affini Compact" to her? Not like you have much of a choice, anyways. The Affini had your entire planet within their vines before any significant resistance could even be _prepared_.
 
@@ -50,7 +50,7 @@ You were sat down in her lap, on top of the chair also much too big for Terrans,
 
 You weren't allowed to keep your old Terran computer, either.
 
-"Terran cybersecurity is much too weak and poses too many risks and dangers for me to be ok letting you continue to use that pathetic excuse for a "computer", Petal. I'll make sure all of your favorite programs are there, but from now on you will strictly be using _Compact_ technology.", you remember your owner's justification being.
+"Terran cybersecurity is much too weak and poses too many risks and dangers for me to be ok letting you continue to use that pathetic excuse for a "computer", Petal. I'll make sure all of your favorite programs are there, but from now on you will strictly be using _Compact_ technology.", you remember your owner telling you.
 
 The computer nearly instantly got to the login screen, and you were finally permitted to use the computer _yourself_ (for now).
 
@@ -88,9 +88,9 @@ The first time she had done this, you were furious, embarrassed, humiliated, and
 
 And yet, the more she did it, the more you slowly warmed up to it.
 
-While it was true you _could_ solve it, did you want to? Did you _really_ want to be stuck for an hour on some stupid problem? She knew the fix. She was just helping you, and it was nice to have help.
+While it was true you probably _could_ have figured out the thing you were stuck on, did you want to? Did you _really_ want to be stuck for an hour on some stupid problem? She knew the fix. She was just helping you, and it was nice to have help.
 
-Your owner was expecting something of you. And, by this point, as humiliating as it was, you knew exactly what she was expecting. You knew "how a proper pet should respond".
+Your owner was expecting something of you. And, by this point, as humiliating as it was, you knew exactly what she was expecting. You knew "how a _proper pet_ should respond".
 
 "Thank you, _Mistress_."
 
@@ -161,4 +161,8 @@ Coffea Pucciniales is a massive programming pun.
 - Coffea, genus name for the coffee plant, Java is where coffee is from, the Java programming language's logo is coffee
 - Pucciniales is the family name for the "Rust" fungus that the Rust programming language was named after
 
-The end is intentionally left ambiguous as to what they do after. Insert whatever freaky stuff you do or don't like here lmao 
+The end is intentionally left ambiguous as to what they do after. Insert whatever freaky stuff you do or don't like here lmao
+
+Yes, the "feeling her emotions" is biorhythms, i thought it'd be fun if it's from the perspective of someone who doesn't know what they are yet.
+
+Yes I love Rust, lol lmao even. Rust is affinicore shutup
