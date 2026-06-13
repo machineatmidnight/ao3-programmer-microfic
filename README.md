@@ -8,7 +8,7 @@ An HDG microfic in 2nd person about a programmer floret (you) and her caring own
 
 ## Notes:
 
-Female Affini, female (she/her) reader referred to as "you" (2nd person).
+Female Affini, gender neutral reader referred to as "you" (2nd person).
 
 ## Fic
 
