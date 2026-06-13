@@ -78,7 +78,81 @@ You then got to a line of code and paused. You thought for a second, and then a 
 
 "The assistance of your Caretaker.", you remember the wording from the Contract. And you knew what came next.
 
-"Here petal," There was no use fighting it, but your owner's ~~soft, comforting~~ hands reached over your own, "why don't I help you out a bit." The individual vines of her hands split apart and wrapped around your own much smaller and weaker hands.
+"Here petal," There was no use fighting it, but your owner's ~~soft, comforting~~ hands reached over your own, "why don't I help you out a bit." The individual vines of her hands split apart and wrapped around your own much smaller and weaker hands. It felt divine.
+
+Slowly, she puppeted your hands. Delicately and precisely moving one finger to press one key, and then the next, and then the next, typing in beautifully written code, with perfect typing posture and zero mistakes.
+
+As her vines uncoiled from your hands, slowly, tracing along them as they pulled away, your owner was looking down at you. You weren't sure why or how you knew, but you could _feel_ your owner... expecting something of you.
+
+The first time she had done this, you were furious, embarrassed, humiliated, and more. You're a perfectly capable and independent Terran capable of solving the problem, if given enough time.
+
+And yet, the more she did it, the more you slowly warmed up to it.
+
+While it was true you _could_ solve it, did you want to? Did you _really_ want to be stuck for an hour on some stupid problem? She knew the fix. She was just helping you, and it was nice to have help.
+
+Your owner was expecting something of you. And, by this point, as humiliating as it was, you knew exactly what she was expecting. You knew "how a proper pet should respond".
+
+"Thank you, _Mistress_."
+
+While it was forced at first, you really did start to mean it. The help she gave was wonderful. A part of you just wished you didn't have to call her Mistress. You tried to ignore the part of you that _liked_ calling her Mistress.
+
+"Such a good floret. Here~ have a little reward for being _so_ polite."
+
+The blush in your cheeks from being called a "good floret" quickly faded when you heard her mention a "reward". You knew exactly what that meant.
+
+Class-A xenodrugs were like... if the Affini made super weed for florets.
+
+And you felt a prick on your shoulder as your owner injected you with them.
+
+Here's the issue, coding while high is hard. Your owner knew this, of course. This was all part of her plan, the routine she loved.
+
+Her touch quickly became more intense and distracting, and the heat stirring inside you roared louder within seconds.
+
+You tried to ground yourself, looking back at the screen, at the perfectly crafted code your owner wrote for you. The code was efficient, and yet still easy for you to understand.
+
+You rebuilt your train of thought and picked up where you left off, just a little slower than you were before.
+
+You could feel your owner's... _hunger_. She wasn't going to let this session be an easy one.
+
+A few lines of code later, your owner suddenly spoke, surprising and interrupting you.
+
+"Very good, petal! Such a smart little floret."
+
+You hated how her praise felt so good, and how the xenodrugs in your system made that feeling a hundred times more intense. Your cheeks flashed so red you knew your owner could tell.
+
+"...but, we could make it better like this~"
+
+And, once again, her vines wrapped around your fingers, and your hands were moved for you. Clicking back a few lines, modifying the code you just wrote, optimizing it.
+
+...Probably. You quickly lost the ability to focus on code, your owner's touch was much more intense than any other thought in your head right now.
+
+You weren't sure how long she spent, but eventually, she slowly slithered off your fingers, and you were brought back to reality when she asked, "See? Isn't that much better?"
+
+It took you a few seconds to even realize you needed to respond. You quickly strung one together, "y- yes... mistress...."
+
+"Awwww, is my cute little floret too focused on her _Mistress_'s touch that you can't do your silly little coding anymore?"
+
+You begrudgingly nodded. You knew, by this point, that she knew when you lied better than any Terran.
+
+Her smile widened. That unexplainable _feeling_ of her smile widened as well.
+
+"Are you able to save and commit your code, or do you need me to do that for you as well?"
+
+Before you could even respond, her vines slowly crawled back up your hands, pushing out whatever thoughts you had left.
+
+_Prick_
+
+Fuck.
+
+The pure feeling of her vines covering your hands, being on your back, and your legs, enveloping you, protecting you, helping you, pushed out every single other thought in your head.
+
+You're pretty sure she was saving and committing your code for you. You think. You were much too overwhelmed with your _Mistress's_ touch to really be able to tell.
+
+"That's enough coding for you for today, my cute brilliant little Terran. Why don't we go have some fun that's more suited for a pretty pet like you."
+
+She shut off the computer and carried you away from it.
+
+That was all the programming you got done that day.
 
 ## Notes
 
@@ -86,3 +160,5 @@ Coffea Pucciniales is a massive programming pun.
 
 - Coffea, genus name for the coffee plant, Java is where coffee is from, the Java programming language's logo is coffee
 - Pucciniales is the family name for the "Rust" fungus that the Rust programming language was named after
+
+The end is intentionally left ambiguous as to what they do after. Insert whatever freaky stuff you do or don't like here lmao 
